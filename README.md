@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working a robotic arm project to automate the PCR process in wetlabs.<br>🤝 I’m looking for a full time full-stack SWE position in 2023.<br>🌱 I love challenges and pushing myself to the next level by throwing myself at projects (which sometimes don't work o.0 but 'tis a fun adventure anyway ^_^)<br>💬 Ask me about anything!<br>⚡ Fun fact: I really like pandas (especially those that know kung fu)
+📚 Creator and Founder of [Soundbook](https://www.soundbook.app/)<br>🔭 I’m currently working at Fujitsu Network Communications and Iamecon<br>🤝 Interested in hiring? Feel free to reach out! Always looking for new opportunities :)<br>🌱 I love challenges and pushing myself to the next level by throwing myself at projects (which sometimes don't work o.0 but 'tis a fun adventure anyway ^_^)<br>💬 Ask me about anything!<br>⚡ Fun fact: I really like pandas (especially those that know kung fu)
 
 
 ## 🌐 Socials:
