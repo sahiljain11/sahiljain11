@@ -1,5 +1,5 @@
 # 💫 About Me
-📚 Creator and Founder of [Soundbook](https://www.soundbook.app/)<br>🔭 I’m currently working at Sony AI<br>🤝 Interested in hiring? Feel free to reach out! Always looking for new opportunities :)<br>🌱 I love challenges and pushing myself to the next level by throwing myself at projects (which sometimes don't work o.0 but 'tis a fun adventure anyway ^_^)<br>📜 In the past, I've founded the organizations of [ECLAIR](https://eclairrobotics.web.app/) and an FRC Robotics team called the [Radicubs](https://radicubs.wixsite.com/robotics)<br>💬 Ask me about anything!<br>⚡ Fun fact: I really like pandas (especially those that know kung fu)
+📚 Creator and Founder of [Soundbook](https://www.soundbook.app/)<br>🔭 I’m currently working at Sony AI<br>🤝 Interested in networking? Feel free to reach out!<br>🌱 I love challenges and pushing myself to the next level by throwing myself at projects (which sometimes don't work o.0 but 'tis a fun adventure anyway ^_^)<br>📜 In the past, I've founded the organizations of [ECLAIR](https://eclairrobotics.web.app/) and an FRC Robotics team called the [Radicubs](https://radicubs.wixsite.com/robotics)<br>💬 Ask me about anything!<br>⚡ Fun fact: I really like pandas (especially those that know kung fu)
 
 
 # 🌐 Socials
